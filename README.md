@@ -1,1 +1,1 @@
-# Parth26ii
+Maggi can be made in 3min by boiling maggi in water.

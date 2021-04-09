@@ -1,0 +1,1 @@
+maggi family packet, maggi masala, vegetables like carrot, brocolli, corns. (4 persons)
